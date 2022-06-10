@@ -1,3 +1,1 @@
-# HalvorCappelenWik
-
-Hi 
+## Hi, check out my projects!
