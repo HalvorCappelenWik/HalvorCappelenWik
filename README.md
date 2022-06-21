@@ -1,1 +1,1 @@
-## Hi, check out my projects!
+## Hi 👋 
